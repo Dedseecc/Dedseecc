@@ -71,7 +71,7 @@ I focus on:
 ## 🌐 Connect With Me
 
 * 💼 LinkedIn: [https://www.linkedin.com/in/souvik-banerjee07](https://www.linkedin.com/in/souvik-banerjee07)
-* 📧 Email: contact.with.souvikbanerjee
+* 📧 Email: contact.with.souvikbanerjee@gmail.com
 * 🧪 GitHub: You’re already here 🙂
 
 ---
